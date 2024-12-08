@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xcrukzp
 - 👀 I’m interested in homestuck, eddsworld, the fairly oddparents, arcane, murder drones, SMG4 and more! (i forgor)
 - 🌱 I’m currently learning nothing yet!
-- 💞️ I’m looking to collaborate on discord and pony town!
+- 💞️ I’m looking to collaborate on: idk
 - 📫 How to reach me: ask my discord!
 - 😄 Pronouns: **PLEASE** use she/her or they/them with me!
 - ⚡ Fun fact: did you know that i have a popular friend? (Antony Kos)
