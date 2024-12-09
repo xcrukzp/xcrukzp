@@ -3,10 +3,10 @@
 - 🌱 I’m currently learning nothing yet!
 - 💞️ I’m looking to collaborate on: idk
 - 📫 How to reach me: ask my discord!
-- 😄 Pronouns: **PLEASE** use she/her or they/them with me!
+- 😄 Pronouns: **PLEASE** use she/her or they/them with me! (don't use any.)
 - ⚡ Fun fact: did you know that i have a popular friend? (Antony Kos)
-
-<!---
-xcrukzp/xcrukzp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+🐴 My ponys (in pony town): All my ponys are C+J! so.. be free for hide and cuddling me! ^.^
+🩷️ Fictionkins: Medkit, BanHammer, Dj pon-3, Tord 
+(the character), Sebastian Solace, ,Marceline, Sailor Moon, and others!
+🩸 My style?: Well.. i go by scene kid, emo, rock style(?) and russia style (it's because of ushanka), but i have others that i don't know the name!
+👾 **PLEASE! GO TO MY PRONOUNS PAGE AFTER TALK EWITH ME!!**
