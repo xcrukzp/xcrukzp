@@ -1,3 +1,5 @@
+
+
 - 👋 Hi, I’m @xcrukzp
 - 👀 I’m interested in homestuck, eddsworld, the fairly oddparents, arcane, murder drones, SMG4 and more! (i forgor)
 - 🌱 I’m currently learning nothing yet!
