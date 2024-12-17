@@ -7,8 +7,8 @@
 - 📫 How to reach me: ask my discord!
 - 😄 Pronouns: **PLEASE** use she/her or they/them with me! (don't use any.)
 - ⚡ Fun fact: did you know that i have a popular friend? (Antony Kos)
-🐴 My ponys (in pony town): All my ponys are C+J! so.. be free for hide and cuddling me! ^.^
-🩷️ Fictionkins: Medkit, BanHammer, Dj pon-3, Tord 
+🐴 My ponys (in pony town): All my ponys are C+H! so.. be free for hide and cuddling me! ^.^
+🩷️ Fictionkins: Medkit, BanHammer, Dj pon-3, Tord and others
 (the character), Sebastian Solace, ,Marceline, Sailor Moon, and others!
 🩸 My style?: Well.. i go by scene kid, emo, rock style(?) and russia style (it's because of ushanka), but i have others that i don't know the name!
 👾 **PLEASE! GO TO MY PRONOUNS PAGE AFTER TALK EWITH ME!!**
